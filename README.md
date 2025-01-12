@@ -29,12 +29,6 @@ https://1drv.ms/v/c/b69aadc86400ab32/EdsARxmuGR5Lmd7RL6jCPV0BuLb5ZZbt1ElZWujxNfE
 Foi bem desafior e divetido, ver o projeto pronto me deixow muito feliz e orgulhosa por ter conseguido.
 Esse foi o primeiro mas sei que com mais pratica vou conseguir criar videos muito melhores e realistas # Natural ou Fake Natty? Como Vencer na Era das IAs Generativas
 
-## 🚀 Introdução
-
-
-Olá pessoal, Venilton da DIO aqui! Inspirado na hype _"Natty or Not"_ do fisiculturismo, este Lab da DIO te convida a conhecer o mundo das IAs Generativas, explorando o potencial dessas tendências tecnológicas incríveis!
-
-
 
 
 
